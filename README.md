@@ -1,3 +1,2 @@
 # miritalakhani.github.io
-
-I am still working on it.
+Ready for Review.
